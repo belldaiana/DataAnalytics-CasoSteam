@@ -1,0 +1,1 @@
+![PDF-Final](https://github.com/belldaiana/DataAnalytics-CasoSteam/blob/master/Grupo2-CasoSteam.pptx.pdf)
